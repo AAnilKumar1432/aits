@@ -3,4 +3,4 @@
 ### instuite of
 #### technology
 ##### and science
-**AITS**
+***AITS*** it is the main college
